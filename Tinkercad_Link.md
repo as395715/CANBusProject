@@ -4,6 +4,6 @@ https://www.tinkercad.com/things/8SEuSJVaxl7-can-simulator/editel?sharecode=aQit
 
 Last Updated: 4/7/2020 at 3:25pm
 
-EXPIRES: 4/26/2020 at 3:30pm
+EXPIRES: 4/21/2020 at 3:30pm
 
 Email as395715@ohio.edu for an updated link.
